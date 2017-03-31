@@ -1,1 +1,1 @@
-# Hello-World
+If your actions inspire others to dream more, learn more, do more and become more, you are a leader. A leader is one who knows the way, goes the way, and shows the way. Leadership is not about a title or a designation. Ultimately, leadership is not about glorious crowning acts.
